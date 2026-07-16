@@ -1,4 +1,3 @@
 # rear_metal
 ##Veronika##
 
-remote_theme: "jekyll/minima@1e8a445"
