@@ -1,21 +1,22 @@
 # Rear Metal from Russia
 
-# Редкоземельные металлы
+# Rare earth metals
 
-Редкоземельные металлы — это группа из 17 химических элементов, включающая лантаноиды, а также скандий и иттрий. Они обладают уникальными физико-химическими свойствами, которые делают их незаменимыми в современных технологиях и промышленности.
+Rare earth metals are a group of 17 chemical elements, including the lanthanides, as well as scandium and yttrium. They possess unique physical and chemical properties that make them indispensable in modern technologies and industry.
 
-Редкоземельные металлы находят применение:
-В металлургии для легирования сталей и сплавов, повышая их прочность и жаростойкость.
-В производстве неодимовых магнитов, которые используются в электродвигателях, ветрогенераторах и электронике.
-В аэрокосмической промышленности для создания жаропрочных компонентов двигателей и корпусов летательных аппаратов.
-В атомной энергетике в качестве поглотителей нейтронов и компонентов топливных элементов.
-Благодаря своим уникальным свойствам, эти металлы играют ключевую роль в развитии высокотехнологичных отраслей, обеспечивая прогресс в энергетике, электронике и машиностроении.
+Rare earth metals are used:
 
-Где приобрести редкоземельные металлы?
-Обратитесь к нам — мы предлагаем высококачественные редкоземельные металлы для применения в металлургии и других отраслях промышленности. Наши специалисты помогут подобрать оптимальное решение для ваших задач. Свяжитесь с нами уже сегодня, чтобы оформить заказ или получить консультацию!
+In metallurgy for alloying steels and alloys, increasing their strength and heat resistance.
+In the production of neodymium magnets, which are used in electric motors, wind turbines, and electronics.
+In the aerospace industry to create heat‑resistant components for engines and aircraft bodies.
+In nuclear power as neutron absorbers and components of fuel cells.
+Thanks to their unique properties, these metals play a key role in the development of high‑tech industries, driving progress in energy, electronics, and mechanical engineering.
 
-## Contact us!
-Телефоны для связи: 
+Where to buy rare earth metals? Contact us — we offer high‑quality rare earth metals for use in metallurgy and other industrial sectors. Our specialists will help you find the optimal solution for your tasks. Contact us today to place an order or get a consultation!
+
+## Contact us! 
+
+## Phone numbers for contact:
 ## +7(904)492-10-61  
 ## +7(919)925-88-22
 ## WeChat ID: wxid_0zg8idl37fy722
