@@ -1,5 +1,3 @@
-# From Russia
-
 Rare earth metals are a group of 17 chemical elements, including the lanthanides, as well as scandium and yttrium. They possess unique physical and chemical properties that make them indispensable in modern technologies and industry.
 
 Rare earth metals are used:
@@ -12,9 +10,9 @@ Thanks to their unique properties, these metals play a key role in the developme
 
 Where to buy rare earth metals? Contact us — we offer high‑quality rare earth metals for use in metallurgy and other industrial sectors. Our specialists will help you find the optimal solution for your tasks. Contact us today to place an order or get a consultation!
 
-## Contact us! 
+# Contact us! 
 
-## Phone numbers for contact:
-## +7(904)492-10-61  
-## +7(919)925-88-22
-## WeChat ID: wxid_0zg8idl37fy722
+# Phone numbers for contact:
+# +7(904)492-10-61  
+# +7(919)925-88-22
+# WeChat ID: wxid_0zg8idl37fy722
